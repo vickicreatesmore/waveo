@@ -1,1 +1,1 @@
-print("waveflicks , just like other tamil meme pages is a ped..")
+print("waveflicks , is not pedo like vicky vignesh who likes school girls")
